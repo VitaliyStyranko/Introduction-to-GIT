@@ -1,1 +1,1 @@
-Vitaliy Styranko
+VS
